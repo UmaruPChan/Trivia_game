@@ -1,3 +1,8 @@
+# Full Release
+Now i've uploaded the full release for the game have fun!
+there's a clue left behind use that wisely!
+
+
 # BETA Version!
 This thing still in work! just wait for it's full relesae if you don't want to play the BETA version
 
